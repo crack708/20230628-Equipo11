@@ -1,2 +1,2 @@
 
-Alberto Soriano - Jose Gavilanes- Bernardo Pichardo - Fatima Gallardo - Dina Gutierrez
+Alberto Soriano - Jose Gavilanes- Bernardo Pichardo - Fatima Gallardo - Dina Gutierrez-Ronny Contento
