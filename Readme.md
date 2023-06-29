@@ -1,2 +1,3 @@
-Alberto Soriano
-Bernardo Pichardo
+
+Alberto Soriano - Jose Gavilanes- Bernardo Pichardo
+
