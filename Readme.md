@@ -1,1 +1,2 @@
-Alberto Soriano - Fatima Gallardo
+
+Alberto Soriano - Jose Gavilanes- Bernardo Pichardo - Fatima Gallardo
