@@ -1,2 +1,4 @@
 
-Alberto Soriano - Jose Gavilanes- Bernardo Pichardo - Fatima Gallardo - Dina Gutierrez-Ronny Contento
+#**Ronny**
+##Ecuador
+Ecuador :joy:
