@@ -1,1 +1,2 @@
 Alberto Soriano
+Bernardo Pichardo
